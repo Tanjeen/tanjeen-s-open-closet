@@ -1,5 +1,4 @@
 # tanjeen-s-open-closet
-just another repository
 hey every creative soul over there!!
 I am Tanjeen.
 I love creative people and love to work.
